@@ -17,10 +17,6 @@ Experiencia Laboral Full Stack Teaching Assistant Ago. 2022 - actualidad. Experi
 
 Coordinar a un grupo de estudiantes para lograr la integración al equipo de estudio. Asistir a la resolución de ejercicios y promover la colaboración grupal (Pair Programming). Proponer ideas para la mejora de los procesos del Bootcamp.
 
-Coordinador sept. 2015 - nov. 2020. Hiram Turismo. Empresa de turismo
-
-Coordinación de equipo de trabajo en el área de ventas y logística. Coordinación y orientación de grupo de clientes.
-
 Educación Full Stack Web Developer. Henry Bootcamp. 800 horas de cursado teórico-práctico. 2023.
 
 LinkedIn: https://www.linkedin.com/in/cristian-sebastian-capobianco/
